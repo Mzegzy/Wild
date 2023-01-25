@@ -20,4 +20,8 @@ You can always try out the following websites if you are willing to give it a tr
 - [LinkedIn](https://www.linkedin.com)
 
 2. *Blogging* - You can as well start your own website and blog, guest blogs, get monetized on google analytics, or any other ad networks, pinterest and even instagram. 
-For easy making of your website you can visit [Wordpress](https//:www.wordpress.com)
+For easy making of your website you can visit [Wordpress](https://www.wordpress.com)
+For better and an SEO google optimized website visit [Codeacademy](https://www.codeacademy.com)
+As a beginner, to avoid complicatios start out your hosting at [Bluehost](https://www.bluehost.com)
+
+
