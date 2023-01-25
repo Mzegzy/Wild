@@ -32,3 +32,7 @@ As a beginner, to avoid complicatios start out your hosting at [Bluehost](https:
 
 > Dream until it becomes your reality
 ![Let’s fly (1)](https://user-images.githubusercontent.com/123540025/214559972-171a78e1-5070-4533-8f8c-3304f37e30dc.jpg)
+
+😂
+
+[^1]: My footnote
