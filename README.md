@@ -24,4 +24,11 @@ For easy making of your website you can visit [Wordpress](https://www.wordpress.
 For better and an SEO google optimized website visit [Codeacademy](https://www.codeacademy.com)
 As a beginner, to avoid complicatios start out your hosting at [Bluehost](https://www.bluehost.com)
 
+3. *Open your own digital shop* - You can open a digital shop and sell digital stuff like journals, clothes, or whatever you feel like. You can open your shop pn
+- [Amazon](https://www.amazon.com)
+- [Etsy](https://www.etsy.com)
+- [Alibaba](https://www.alibaba.com)
+- [Instagram](https://www.instagram.com)
 
+> Dream until it becomes your reality
+![Let’s fly (1)](https://user-images.githubusercontent.com/123540025/214559972-171a78e1-5070-4533-8f8c-3304f37e30dc.jpg)
